@@ -1,3 +1,3 @@
 # April 29th, 2025 Meeting Minutes
 
-📄 [Open Google Doc](https://docs.google.com/document/d/16Ju7eHDavXxLBTbuZw1IzgZBRs0mAXmsDxavzAa3A6g/edit?usp=sharing)
+📄 [Open Google Doc](https://drive.google.com/file/d/1vlJt-p3etAED3hgjMfNLdNFRsfs7NCCH/view?usp=sharing)
